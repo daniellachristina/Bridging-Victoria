@@ -9,12 +9,12 @@ Another aspect that I would like to point out is something I discovered while I 
 
 ### References
 
-"Chronology Of Canadian West Coast Security And Defences « 5Th Artillery Regiment". 2017. 5Thartilleryregiment.Ca. http://www.5thartilleryregiment.ca/our-history/chronology-of-canadian-west-coast-security-and-defences/.
+ "Chronology Of Canadian West Coast Security And Defences « 5Th Artillery Regiment". 2017. 5Thartilleryregiment.Ca. http://www.5thartilleryregiment.ca/our-history/chronology-of-canadian-west-coast-security-and-defences/.
 
-"Chronology Of Victoria's Chinatown | Victoria's Chinatown". 2017. Chinatown.Library.Uvic.Ca. http://chinatown.library.uvic.ca/chronology.
+ "Chronology Of Victoria's Chinatown | Victoria's Chinatown". 2017. Chinatown.Library.Uvic.Ca. http://chinatown.library.uvic.ca/chronology.
 
-Hill, Genevieve. 2017. "Digging Through Ancestry: How Archaeology Reveals Ancestral Connections In First Nations Basketry Techniques | Curious". Curious.Royalbcmuseum.Bc.Ca. http://curious.royalbcmuseum.bc.ca/digging-through-ancestry-first-nations-basketry/.
+ Hill, Genevieve. 2017. "Digging Through Ancestry: How Archaeology Reveals Ancestral Connections In First Nations Basketry Techniques | Curious". Curious.Royalbcmuseum.Bc.Ca. http://curious.royalbcmuseum.bc.ca/digging-through-ancestry-first-nations-basketry/.
 
-"Songhees - The Bill Reid Centre - Simon Fraser University". 2017. Sfu.Ca. https://www.sfu.ca/brc/virtual_village/coast_salish/Songhees.html.
+ "Songhees - The Bill Reid Centre - Simon Fraser University". 2017. Sfu.Ca. https://www.sfu.ca/brc/virtual_village/coast_salish/Songhees.html.
 
-"Victoria Heritage Foundation". 2017. Victoriaheritagefoundation.Ca. https://victoriaheritagefoundation.ca/chroncityhistory.html.
+ "Victoria Heritage Foundation". 2017. Victoriaheritagefoundation.Ca. https://victoriaheritagefoundation.ca/chroncityhistory.html.
